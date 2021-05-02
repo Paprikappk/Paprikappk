@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Paprikappk
-- 👀 I’m interested in videogames basically.
+- 👀 I’m invested in videogames, human rights and dogos.
 - 🌱 I’m currently learning Python and working for a startup.
 - 💞️ I’m looking to collaborate on new and exciting projects.
 - 📫 How to reach me : send me a mail at ppkpaprika[arobase/at]gmail[dot][com]
